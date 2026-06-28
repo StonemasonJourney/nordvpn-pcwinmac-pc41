@@ -1,4 +1,4 @@
-# 
+# Melhor NordVPN predefinições para Mac OS | Novo NordVPN predefinições para PC Windows. Com cache de dados e análise de dados históricos — otimizado para máximo desempenho em cada plataforma.
 
 
 
